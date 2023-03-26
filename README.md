@@ -12,4 +12,4 @@ Passionate Data Analyst with the ability to coordinate with multidisciplinary te
 * VBA
 
 ### Contact
-https://www.linkedin.com/in/leela-phaneendra-chitturi-691ab8164/?lipi=urn%3Ali%3Apage%3Ad_flagship3_feed%3BipYE3VEaRK6rPeTj9OFnxQ%3D%3D
+![Linkedin-icon](https://user-images.githubusercontent.com/128988629/227791773-e50cb320-9add-4420-95cd-1fbf12ebb637.png)https://www.linkedin.com/in/leela-phaneendra-chitturi
